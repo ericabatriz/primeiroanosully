@@ -1,0 +1,2 @@
+- 👋 Oi,sou @ericabatriz
+-eu gosto de escutar musica e tirar fotos 
